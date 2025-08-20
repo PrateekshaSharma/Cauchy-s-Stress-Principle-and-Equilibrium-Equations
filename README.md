@@ -1,0 +1,1 @@
+# Cauchy-s-Stress-Principle-and-Equilibrium-Equations
